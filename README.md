@@ -2,4 +2,4 @@
 este si jala jijiji
 
 # colaboradores
-ola soy andreita como stas 
+ola soy ariza y estefy como stas
